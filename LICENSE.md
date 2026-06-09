@@ -1,4 +1,4 @@
-#  
+#  Experience one tap like never before with one tap Scripts rare, the #1 Script. Includes god mode and silent aim for unbeatable performance.
 
 
 
